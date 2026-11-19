@@ -1,0 +1,1 @@
+Place the approved Thikana screen screenshots and sketches here. Use descriptive names such as home.png, search-results.png, property-detail.png, create-listing.png. The current uploaded intake did not include image files.
